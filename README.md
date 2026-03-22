@@ -3,7 +3,9 @@
 ## ‧˚꒰![ncn3c2](https://github.com/user-attachments/assets/7667a8f5-19f7-4070-a3a6-d91bfa2568a0)꒱ "****For my nation! For my people!****"₊˚
 <p align="left"><img src="gulp" alt="Kirumi"  />
   
-<img src="tumblr_05d407ede4e4ca49a687c9e06e353a8b_65483840_100.png"><img src="boş.png" height="2" width="20"><img src="https://komarev.com/ghpvc/?username=S0urlw&label=Profile%20views&color=e2fbf9&style=flat"><img src="boş.png" height="2" width="20"><img src="qy6i5u.png"><img src="boş.png" height="2" width="50"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp">
+<p align="center"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp">
+
+<img src="boş.png" height="2" width="250"><img src="tumblr_05d407ede4e4ca49a687c9e06e353a8b_65483840_100.png"><img src="boş.png" height="2" width="20"><img src="https://komarev.com/ghpvc/?username=S0urlw&label=Profile%20views&color=e2fbf9&style=flat"><img src="boş.png" height="2" width="20"><img src="qy6i5u.png">
 
 
 
