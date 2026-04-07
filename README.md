@@ -20,11 +20,13 @@ I geniunely type just like how you do towards me,, so no need to act cool becaus
 
 FREEELLLLYY C+H except if im with some1 ask to mee in whisper!!!! I REALLY LOVE CUDS
 
+## byi !!!!!! important
+
+im still trying to recover as a proshipper since ppl wont like me and prob get kinda disgusted ok bye (saying this bcs i might be on ur dni list)
 
 
 
-
-<img width="99" height="56" alt="stamp___vocaloid_rin_and_len_by_silliest_sarah_d209lx8-fullview" src="https://github.com/user-attachments/assets/5105b0c0-be35-4b3d-9b9e-77bcdd9607e3" /><img width="99" height="56" alt="13c348a4616f88bae8cd1b466749f6e999ad86a9" src="https://github.com/user-attachments/assets/c5185cbd-f1a2-4e20-9887-4d23b59fe517" />
+<img width="99" height="56" alt="stamp___vocaloid_rin_and_len_by_silliest_sarah_d209lx8-fullview" src="https://github.com/user-attachments/assets/5105b0c0-be35-4b3d-9b9e-77bcdd9607e3" />
 
 
 
