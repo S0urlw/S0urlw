@@ -1,4 +1,7 @@
-## Info ) ) :                          (WIP!!!!!11!111!!!!!)
+## Info ) ) : Please Read ! ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
+         
+
+(WIP!!!!!11!111!!!!!)
   
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
@@ -11,25 +14,43 @@
   
 <p align="center"> info bellooooooowwwww pls look at this b4 int yaaayyyy (ദ്ദി˙ᗜ˙)
 
+<p align="center"><img src="https://github.com/user-attachments/assets/b0e2ef29-0882-4952-9776-1f019124465e">
+  
+
+
+
+
  
 ## About me !
 
-hihihiihihiihiiiiiiiiiiiiiiii!! hehehehewheh.... okokb uuuhh im Sour/Sourlw but i dont mind you calling me ANYTHING. except slurs ooorr bad words yeah smthsmth like yes you can call me unicorns shitting rainbows
+<img scr="boş.png">
 
-I geniunely type just like how you do towards me,, so no need to act cool because i WILL act like how you do!!!! KEEP UR PERSONALITY OPEN BRAH!!!!!
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : hihihiihihiihiiiiiiiiiiiiiiii!! hehehehewheh.... okokb uuuhh im Sour/Sourlw but i dont mind you calling me ANYTHING. except slurs ooorr bad words yeah smthsmth like yes you can call me unicorns shitting rainbows
 
-FREEELLLLYY C+H except if im with some1 ask to mee in whisper!!!! I REALLY LOVE CUDS
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I geniunely type just like how you do towards me,, so no need to act cool because i WILL act like how you do!!!! KEEP UR PERSONALITY OPEN BRAH!!!!!
 
-## byi !!!!!! important
-
-im still trying to recover as a proshipper since ppl wont like me and prob get kinda disgusted ok bye (saying this bcs i might be on ur dni list)
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : FREEELLLLYY C+H except if im with some1 ask to mee in whisper!!!! I REALLY LOVE CUDS <p align="center">
 
 
 
-<img width="99" height="56" alt="stamp___vocaloid_rin_and_len_by_silliest_sarah_d209lx8-fullview" src="https://github.com/user-attachments/assets/5105b0c0-be35-4b3d-9b9e-77bcdd9607e3" />
 
 
 
+
+## Before You Interact
+
+<img scr="boş.png">
+
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im still trying to recover as a proshipper since ppl wont like me and prob get kinda disgusted ok bye (saying this bcs i might be on ur dni list)
+
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I might be awkward when i first meet ppl but i warm up SO EASILY TRUST
+
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I make corny jokes and references..........booooooooooooooooooo
+
+
+
+
+![tumblr_a502f05caeb6040d180a78d6326d93e0_3c1d7dcd_100](https://github.com/user-attachments/assets/ce927a72-38b6-4bdc-a56c-349892260b5c)
 
 
 
