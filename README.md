@@ -1,4 +1,4 @@
-## wip
+## Info ) ) :                          (WIP!!!!!11!111!!!!!)
   
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
