@@ -1,12 +1,22 @@
 ## Info ) : Please Read ! ) ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
          
-
-(WIP!!!!!11!111!!!!!)
-  
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
 
 <p align="center"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp"> 
+
+<p align="center">https://sourlw.carrd.co/
+
+<p align="center">https://mysocialsites.straw.page/
+
+<p align="center">https://en.pronouns.page/@puffiiiiiioa
+
+<p align="center">https://sourlws.straw.page
+
+<p align="center">https://puffipuff.atabook.org/
+
+<p align="center">https://rentry.co/PuffyMilkyPancakes
+
 <p align="center"><img src="14.png" width="200" height="200"> 
 <p align="center"> Sour / She / Her
 <p align="center"> Kirumi & Glisten kinnie
@@ -19,7 +29,6 @@
 
 
 <p align="center"><img src="https://64.media.tumblr.com/775f5b124eaa38df85c5eab4224ef4d3/d14fb478f2145203-bd/s250x400/20da37860de25c28b6012616e43aa52e7221cf03.gifv">
-
 <p align="center"><img src="https://64.media.tumblr.com/093a7c5430fcde6719a99bf06d23a59b/d14fb478f2145203-d8/s250x400/162a3cf06536302bea1de185d9caa9ffd5b3fa10.gifv">
   
 
@@ -74,6 +83,8 @@
 
 
 <p align="left"><img src="https://media1.tenor.com/m/1guumetzKOkAAAAd/kirumi-danganronpa.gif"> 
+
+cuties below
 
 
 
