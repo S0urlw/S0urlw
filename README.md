@@ -1,23 +1,26 @@
 ## Info ) : Please Read ! ) ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
+
+<div align="center">
          
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
 
 <p align="center"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp"> 
 
-<p align="center">https://sourlw.carrd.co/
+[straw.page](https://sourlws.straw.page)
 
-<p align="center">https://mysocialsites.straw.page/
+[atabook](https://puffipuff.atabook.org/)
 
-<p align="center">https://en.pronouns.page/@puffiiiiiioa
+[socials](https://mysocialsites.straw.page/)
 
-<p align="center">https://sourlws.straw.page
+[carrd](https://sourlw.carrd.co/)
 
-<p align="center">https://puffipuff.atabook.org/
+[Roblox](https://www.roblox.com/users/2554062845/profile)
 
-<p align="center">https://rentry.co/PuffyMilkyPancakes
+[rentry.co](https://rentry.co/PuffyMilkyPancakes)
 
-<p align="center"><img src="14.png" width="200" height="200"> 
+[pronouns.p](https://en.pronouns.page/@puffiiiiiioa)
+
 <p align="center"> Sour / She / Her
 <p align="center"> Kirumi & Glisten kinnie
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=S0urlw&label=Profile%20views&color=e2fbf9&style=flat"><p align="center"> <img src="qy6i5u.png"><p align="center"> <img src="tumblr_05d407ede4e4ca49a687c9e06e353a8b_65483840_100.png">
@@ -34,7 +37,7 @@
 
 
 
-
+<div align="left">
  
 ## About me !
 
