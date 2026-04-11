@@ -1,4 +1,4 @@
-## Info ) : Please Read ! ) ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
+## Read Before Interacting ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
 
 <div align="center">
          
@@ -6,20 +6,20 @@
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
 
 <p align="center"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp"> 
+ 
+[straw.page](https://sourlws.straw.page) <img src="1007696223135862794.webp" width="20">
 
-[straw.page](https://sourlws.straw.page)
+<img src="1117358759631671357.webp" width="20"> [atabook](https://puffipuff.atabook.org/)
 
-[atabook](https://puffipuff.atabook.org/)
+[socials](https://mysocialsites.straw.page/) <img src="1121918950008180828.webp" width="20">
 
-[socials](https://mysocialsites.straw.page/)
+<img src="1122127959902396467.webp" width="20"> [carrd](https://sourlw.carrd.co/)
 
-[carrd](https://sourlw.carrd.co/)
+[Roblox](https://www.roblox.com/users/2554062845/profile) <img src="4pn60i.gif" width="20">
 
-[Roblox](https://www.roblox.com/users/2554062845/profile)
+<img src="mo142.png" width="20"> [rentry.co](https://rentry.co/DyingInAgonyOfThePainfulStrands)
 
-[rentry.co](https://rentry.co/PuffyMilkyPancakes)
-
-[pronouns.p](https://en.pronouns.page/@puffiiiiiioa)
+[pronouns.p](https://en.pronouns.page/@puffiiiiiioa) <img src="mo38.gif" width="20">
 
 <p align="center"> Sour / She / Her
 <p align="center"> Kirumi & Glisten kinnie
