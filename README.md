@@ -19,7 +19,7 @@
 
 <img src="mo142.png" width="20"> [rentry.co](https://rentry.co/DyingInAgonyOfThePainfulStrands)
 
-[pronouns.p](https://en.pronouns.page/@puffiiiiiioa) <img src="mo38.gif" width="20">
+[pronouns.cc](https://pronouns.cc/@puffiiiiiioa) <img src="mo38.gif" width="20">
 
 <p align="center"> Sour / She / Her
 <p align="center"> Kirumi & Glisten kinnie
