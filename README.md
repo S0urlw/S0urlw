@@ -59,7 +59,7 @@
 
 ## Before You Interact
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im still trying to recover as a proshipper since ppl wont like me and prob get kinda disgusted ok bye (saying this bcs i might be on ur dni list)
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : ive recovered from proshipping (saying this bcs i might be on ur dni list)
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I might be awkward when i first meet ppl but i warm up SO EASILY TRUST
 
