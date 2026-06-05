@@ -59,8 +59,6 @@
 
 ## Before You Interact
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : ive recovered from proshipping (saying this bcs i might be on ur dni list)
-
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I might be awkward when i first meet ppl but i warm up SO EASILY TRUST
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I make corny jokes and references..........booooooooooooooooooo
@@ -75,11 +73,9 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : i dont strictly have a dni for those people, but if ur a darkshipper ur on thin ice, do not talk to me about ur darkships then ur ok. just dont mention darkshipping thats all
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : antis **who still** yap about it when im recovering from proshipping . please i do not wanna talk about that, ur making it grow on me more and more. yeah i do not have dni on antishippers if you just dont interact with me . i mean u can interact if ur feeling comf with a recovering person yeah its up to you
-
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : basic dni criteria
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : if i have dni [blank] if the dni applies to you or just dni alone in my skin name ofc
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : if i have dni [blank] if the dni applies to you or just dni alone in my skin name ofc ( pony town )
 
 
 ![tumblr_a502f05caeb6040d180a78d6326d93e0_3c1d7dcd_100](https://github.com/user-attachments/assets/ce927a72-38b6-4bdc-a56c-349892260b5c)
