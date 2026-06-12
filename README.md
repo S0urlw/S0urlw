@@ -43,6 +43,8 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : hihihiihihiihiiiiiiiiiiiiiiii!! hehehehewheh.... okokb uuuhh im Sour/Sourlw but i dont mind you calling me ANYTHING. except slurs ooorr bad words yeah smthsmth like yes you can call me unicorns shitting rainbows
 
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : KIRUMI. I LOVE kirumi.
+
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I geniunely type just like how you do towards me,, so no need to act cool because i WILL act like how you do!!!! KEEP UR PERSONALITY OPEN BRAH!!!!!
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : FREEELLLLYY C+H except if im with some1 ask to mee in whisper!!!! I REALLY LOVE CUDS <p align="center">
