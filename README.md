@@ -11,9 +11,9 @@
 
 <img src="1117358759631671357.webp" width="20"> [atabook](https://puffipuff.atabook.org/)
 
-[socials](https://mysocialsites.straw.page/) <img src="1121918950008180828.webp" width="20">
+[tiktok](https://www.tiktok.com/@Kirumitojoirl) <img src="1121918950008180828.webp" width="20">
 
-<img src="1122127959902396467.webp" width="20"> [carrd](https://sourlw.carrd.co/)
+<img src="1122127959902396467.webp" width="20"> [straw.p slop](https://kiiboumaa.straw.page)
 
 [Roblox](https://www.roblox.com/users/2554062845/profile) <img src="4pn60i.gif" width="20">
 
@@ -26,7 +26,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=S0urlw&label=Profile%20views&color=e2fbf9&style=flat"><p align="center"> <img src="qy6i5u.png"><p align="center"> <img src="tumblr_05d407ede4e4ca49a687c9e06e353a8b_65483840_100.png">
 
   
-<p align="center"> info bellooooooowwwww pls look at this b4 int yaaayyyy (ദ്ദി˙ᗜ˙)
+<p align="center"> info bellooooooowwwww pls look at this b4 int !!muaha
 
 <p align="center"><img src="https://github.com/user-attachments/assets/b0e2ef29-0882-4952-9776-1f019124465e">
 
@@ -45,11 +45,11 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : KIRUMI. I LOVE kirumi.
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I geniunely type just like how you do towards me,, so no need to act cool because i WILL act like how you do!!!! KEEP UR PERSONALITY OPEN BRAH!!!!!
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I geniunely type just like how you do towards me im a lil copycat (insert gumi ref) 
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : FREEELLLLYY C+H except if im with some1 ask to mee in whisper!!!! I REALLY LOVE CUDS <p align="center">
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I may be oversimulated sometimes so i may not be as energetic as much!!
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im not very online
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : i go offtab constantly if im bored 
 
@@ -63,9 +63,9 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I might be awkward when i first meet ppl but i warm up SO EASILY TRUST
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I make corny jokes and references..........booooooooooooooooooo
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I make corny jokes and references..........boooooooooooooooooooahahahhaahahahahahhahahah laughs evil evil
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I sometimes make freaky jokes, rarely if you dont make freaky jokes too but if you do i may start doing sum too to match ur sense of humor,, TELL ME IF YOU DONT WANNA HEAR THEM !!!!!!!!!!!!
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im a kiiboumaholic i fucking love kokichi x kiibo. i think about them heavily everyday because im unemployed. some might call it kiibouma abuse but i would never abuse kiibo because i love them. I can quit anytime i want but mama didnt raise no quitter. im not even sober rn ngl. i shoulld go to pinterest and look up fanarts insert lovely emoıji insert lovely emoji....
 
 <img src="https://64.media.tumblr.com/f6d5781f8c9d2d3fd27012cb628225bd/65a9601f30833fad-40/s100x200/14fa9badae80b17a249c3aa0fad88d1d6ec2b549.gifv">
 
@@ -75,7 +75,7 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : i dont strictly have a dni for those people, but if ur a darkshipper ur on thin ice, do not talk to me about ur darkships then ur ok. just dont mention darkshipping thats all
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : basic dni criteria
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : basic irl weirdo people and people who makes fun or jokes out of really big crimes i will block u the instant
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : if i have dni [blank] if the dni applies to you or just dni alone in my skin name ofc ( pony town )
 
@@ -90,4 +90,4 @@ cuties below
 
 
 
-<img width="99" height="56" alt="stamp___vocaloid_rin_and_len_by_silliest_sarah_d209lx8-fullview" src="https://github.com/user-attachments/assets/5105b0c0-be35-4b3d-9b9e-77bcdd9607e3" /><img width="99" height="56" alt="13c348a4616f88bae8cd1b466749f6e999ad86a9" src="https://github.com/user-attachments/assets/c5185cbd-f1a2-4e20-9887-4d23b59fe517" /><img width="99" height="56" src="https://media1.tenor.com/m/YXeFllldIvIAAAAd/kiibouma-kiiboma.gif">
+<img width="99" height="56" alt="stamp___vocaloid_rin_and_len_by_silliest_sarah_d209lx8-fullview" src="https://github.com/user-attachments/assets/5105b0c0-be35-4b3d-9b9e-77bcdd9607e3" /><img width="99" height="56" alt="13c348a4616f88bae8cd1b466749f6e999ad86a9" src="https://github.com/user-attachments/assets/c5185cbd-f1a2-4e20-9887-4d23b59fe517" /><img width="99" height="56" src="https://media1.tenor.com/m/YXeFllldIvIAAAAd/kiibouma-kiiboma.gif"> KIIBOUMAAAAAAAAAAAAAAAAAAAAWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
