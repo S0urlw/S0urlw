@@ -65,7 +65,7 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : I make corny jokes and references..........boooooooooooooooooooahahahhaahahahahahhahahah laughs evil evil
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im a kiiboumaholic i fucking love kokichi x kiibo. i think about them heavily everyday because im unemployed. some might call it kiibouma abuse but i would never abuse kiibo because i love them. I can quit anytime i want but mama didnt raise no quitter. im not even sober rn ngl. i shoulld go to pinterest and look up fanarts insert lovely emoıji insert lovely emoji....
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im a kiiboumaholic i fucking love kokichi x kiibo. i think about them heavily everyday because im unemployed. some might call it kiibouma abuse but i would never abuse kiibouma because i love them. I can quit anytime i want but mama didnt raise no quitter. im not even sober rn ngl. i shoulld go to pinterest and look up fanarts insert lovely emoıji insert lovely emoji....
 
 <img src="https://64.media.tumblr.com/f6d5781f8c9d2d3fd27012cb628225bd/65a9601f30833fad-40/s100x200/14fa9badae80b17a249c3aa0fad88d1d6ec2b549.gifv">
 
