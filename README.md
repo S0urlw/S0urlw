@@ -3,6 +3,7 @@
 <div align="center">
          
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
+<p align="center"><img src="divid">
 <p align="center"><img src="0889213c84a0a1cf7ab3bda499eb7703.jpg">
 
 <p align="center"><img src="Danganronpa_V3_Kirumi_Tojo_Halfbody_Sprite_(16).webp"> 
