@@ -56,7 +56,9 @@
 
 <img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : go on and add me on discord I DO NOT MIND I ONLY HAVE FEW DMS
 
-<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im open to any humor most of the time and if im not comf with some jokes u make i will tell whenever, so u can spit any jokes/references to me unless i said otherwise ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : im open to any humor most of the time and if im not comf with some jokes u make i will tell whenever, so u can say any jokes/references to me unless i said otherwise ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+
+<img width="20" height="20" alt="w47" src="https://github.com/user-attachments/assets/419e2581-b1ba-4a0a-9c5d-eddb76879d5c" /> : do not copy my ponies, but  PLEASEE take inspo i love becoming an inspiration. also this is not necessary but PLEASE TELL ME I WANNA SeE TH RESULT
 
 <img src="https://64.media.tumblr.com/7df29c6bf05e3e09b2049f043b6881a9/65a9601f30833fad-98/s100x200/b9dfbbb6b8bb839841517557df42f8e00ef64b55.gifv">
 
