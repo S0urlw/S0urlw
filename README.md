@@ -1,6 +1,8 @@
 ## Read Before Interacting ⊹₊˚     ![w12](https://github.com/user-attachments/assets/273e329c-7db7-4e2c-9870-471735fc7f0f)
 
 <div align="center">
+
+ill remake my repo later but idk when im a lazy chud
          
 <p align="center">‧˚꒰  "For my nation! For my people!"₊˚
 <p align="center"><img src="divid">
